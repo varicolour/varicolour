@@ -8,4 +8,4 @@ Always feel free to leave comments or feedback on my things, because I want to l
 ***
 
 You can contact me on discord: **@eniya.wav**  
-...and find my other stuff on my **[linktree](linktr.ee/en1ya)**
+...and find my other stuff on my **[linktree](https://linktr.ee/en1ya)**
